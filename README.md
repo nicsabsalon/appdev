@@ -3,4 +3,4 @@
 **SERIES**
 : *The quirky and famous Dr. Romantic, nicknamed "Hand of God," returns to teach gifted doctors in a small Korean town about the meaning of healthcare.*
 
-![Dr. Romantic](https://user-imaages.githubusercontent.com https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQESaYjiWRGNBxNoP19L5ZLdWlPViKWmXNhrA&usqp=CAU)
+![Dr. Romantic](https://upload.wikimedia.org/wikipedia/en/thumb/4/4a/Dr._Romantic_3_poster.jpg/300px-Dr._Romantic_3_poster.jpg)
