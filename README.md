@@ -12,4 +12,4 @@ Three years following the events of the first season, Kim Sa-bu visits Geosan Un
 ### Season 3
 Three years following the events of the second season, the Doldam Hospital Regional Trauma Center which was Kim Sa-bu's long-held dream will be opened. With the opening of the Regional Trauma Center, the scale of incidents and accidents that Doldam Hospital has to deal with also increased. The events will also feature Kang Dong-joo (Yoo Yeon-seok) temporary return.
 
-#### Cast
+###Cast
